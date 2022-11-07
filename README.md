@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @chris4041b
+- 👀 I’m interested in Coding AI and Tachnology
+- 🌱 I’m currently learning  Programing
+- 💞️ I’m looking to collaborate on Top Company
